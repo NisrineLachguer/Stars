@@ -1,2 +1,2 @@
 # Stars
-https://github.com/user-attachments/assets/d91a5ab4-f185-4686-a973-a7556b993699
+https://github.com/user-attachments/assets/f3ecf5a5-846a-4747-b926-ae18469f78a2
